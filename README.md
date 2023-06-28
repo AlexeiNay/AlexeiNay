@@ -7,8 +7,6 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/alexei-sanchez-sandoval/](https://www.linkedin.com/in/alexei-sanchez-sandoval/)
 
-- ⚡ Fun fact **I think I am very funny**
-
 <p align="left">
 </p>
 
